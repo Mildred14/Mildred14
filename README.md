@@ -10,6 +10,6 @@ I'm currently working for SalesLoft (Btw, we're looking for great talent. Join u
 
 ☕ I'm a coffee lover and a researcher to find the best "Chilaquiles" (mexican food)
 
-🇲🇽 Born and raised in MX 
+🇲🇽 Born and raised at Colima, Mex. 
 
 📞 Contact me on Twitter @__Mildred (Nataly Silva) I love met new people
