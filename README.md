@@ -12,4 +12,4 @@ I'm currently working for Salesloft (Btw, we're looking for great talent. Join u
 
 🇲🇽 Born and raised at Colima, Mex. 
 
-📞 Contact me on Twitter @__Mildred (Nataly Silva) I love met new people
+📞 Contact me on Twitter @__Mildred (Nataly Silva) I love to meet new people
