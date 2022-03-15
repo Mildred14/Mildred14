@@ -1,7 +1,7 @@
 # Hi there! 👋
 *I'm Mildred Silva* and Welcome to my Github profile. Feel free to dig into my public repos.
 
-I'm currently working for SalesLoft (Btw, we're looking for great talent. Join us 👉 https://grnh.se/2388552c1us)
+I'm currently working for Salesloft (Btw, we're looking for great talent. Join us 👉 https://grnh.se/2388552c1us)
 
 ---
 ♥️ Here you'll find Software builded con harto amor (tons of love)
